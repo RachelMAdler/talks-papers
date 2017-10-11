@@ -1,6 +1,6 @@
 # Publications
 
-•	Adler, R. M., Novick, J. M., & Huang, Y. (2016). The time course of verbal irony comprehension and context integration. Paper presented at Trends in Experimental Pragmatics, Berlin, Germany. [pdf]
+•	Adler, R. M., Novick, J. M., & Huang, Y. (2016). The time course of verbal irony comprehension and context integration. Paper presented at Trends in Experimental Pragmatics, Berlin, Germany. [pdf](https://docs.wixstatic.com/ugd/a12539_2fa9f35ce80e4f748a848d7510a7f04e.pdf)
 
 •	Adler, R. M., Shell, A. R., Valdes Kroff, J., Slevc, R., & Novick, J. M. (2015). Cognitive control in second language learning: Insights from code-switching and vocabulary learning studies (Technical Report DO 0054 Obj 3). College Park, MD: University of Maryland Center for Advanced Study of Language. [pdf]
 
