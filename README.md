@@ -12,7 +12,7 @@
 
 •	Grodner, D., & **Adler, R. M.** (2013). The effects of perspective and communicative goals on choice of descriptions. In L. Goldstein (Ed.), *Brevity*. Oxford: Oxford University Press. [pdf](https://docs.wixstatic.com/ugd/a12539_da2e08910d8d4f47811dc71536ade026.pdf)
 
-•	Klieger, D. M., **Adler, R.**, & Ezzo, C. (2013). *Asking differently about race and ethnicity: New needs for a changing population* (ETS Research Report No. RR-13-37). Princeton, NJ: Educational Testing Service. **[pdf]**(https://docs.wixstatic.com/ugd/a12539_357a14402591404ab077f4d7f9a0865e.pdf)
+•	Klieger, D. M., **Adler, R.**, & Ezzo, C. (2013). *Asking differently about race and ethnicity: New needs for a changing population* (ETS Research Report No. RR-13-37). Princeton, NJ: Educational Testing Service. [pdf](https://docs.wixstatic.com/ugd/a12539_357a14402591404ab077f4d7f9a0865e.pdf)
 
 •	Liu, O. L., Bridgeman, B., & **Adler, R. M.** (2012). Measuring learning outcomes in higher education: Motivation matters. *Educational Researcher, 41*, 352-362. [pdf](https://docs.wixstatic.com/ugd/a12539_1e0d3e56bdf24cb3bd162aac4d60bab8.pdf)
 
